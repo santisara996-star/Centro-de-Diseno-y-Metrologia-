@@ -1,2 +1,2 @@
-# Centro-de-Dise-o-y-Metrologia-
+# Centro-de-Diseno-y-Metrologia-
 blog diseño y metrologia 
